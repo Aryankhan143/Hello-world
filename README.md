@@ -1,2 +1,2 @@
-# Hello-world
-Not yet
+# Hello-world 
+It's good platform for earning 
